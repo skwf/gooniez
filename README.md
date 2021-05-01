@@ -3,7 +3,7 @@
 ![the famous internet troll. >:)](https://cdn.discordapp.com/attachments/837726150083477573/838020002715795476/tenor_3.gif)
 
 🔭 I’m currently working on MeMz Net.
-🌱 I’m currently learning HTML.
+🌱 Learning HTML.
 🤔 I’m looking for help with java.
 📫 How to reach me: noah@ddosed.org
 😄 Pronouns: he/him
