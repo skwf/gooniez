@@ -11,7 +11,6 @@
 
 Skills: PYTHON / HTML
 
-- 🔭 I’m currently working on this page. 
 
 
 [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=gooniez)](https://github.com/gooniez/github-readme-stats)
