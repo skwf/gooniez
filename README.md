@@ -9,7 +9,9 @@
 😄 Pronouns: he/him
 ⚡ Fun fact: I hate fags.
 
-Skills: PYTHON / HTML
+## Skills and Experience
+* 📱 Python
+* 💻 HTML
 
 
 
