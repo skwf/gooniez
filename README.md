@@ -1,5 +1,5 @@
 ### Hi there 👋, my name is Noah,
-#### the famous internet troll. >:)
+#### ps. ily josh
 ![the famous internet troll. >:)](https://cdn.discordapp.com/attachments/837726150083477573/838020002715795476/tenor_3.gif)
 
 
