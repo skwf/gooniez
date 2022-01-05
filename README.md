@@ -1,5 +1,4 @@
-### Hi there 👋, my name is Noah,
-#### ps. ily josh
+### literally just shitpost on here
 ![the famous internet troll. >:)](https://cdn.discordapp.com/attachments/837726150083477573/838020002715795476/tenor_3.gif)
 
 
